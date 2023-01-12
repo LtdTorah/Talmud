@@ -6,3 +6,7 @@ https://bitter-sky-1461.on.fleek.co/ is our only official website. Beware of sca
 DAO:
 
 https://app.realms.today/dao/6nTw829L7MLeLVzUxLmTu3rEm69nK15MbKo1WbWd1fg
+
+Reddit：
+
+https://www.reddit.com/r/talmud202301121231/
