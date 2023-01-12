@@ -10,3 +10,7 @@ https://app.realms.today/dao/6nTw829L7MLeLVzUxLmTu3rEm69nK15MbKo1WbWd1fg
 Reddit：
 
 https://www.reddit.com/r/talmud202301121231/
+
+Solscan:
+
+https://solscan.io/token/BqEmEJMajpHwHLe9v8SiRtPw9DHQZoaN9coxDKokhrty
